@@ -20,10 +20,11 @@ _____interests_______
 transformers or robots in general very crazy abt them 
 
 CATS/plums/dogs.etc my favorite food is medovik||||THATS ALL!
-_____________________\adults info 
+_____________________
+\adults info 
 talk nsfw with me i would love that
 
 say whatever ya want[unless its rude]:3.  
-
+__________
 translated by my conjunx[ruslovka]
 
