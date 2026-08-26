@@ -22,4 +22,4 @@ transformers or robots in general very crazy abt them
 CATS/plums/dogs.etc my favorite food is medovik||||THATS ALL!
 
 
-translated my my conjunx Ros.
+translated by my conjunx Ros.
