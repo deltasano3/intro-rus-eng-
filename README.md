@@ -23,3 +23,12 @@ CATS/plums/dogs.etc my favorite food is medovik||||THATS ALL!
 
 
 translated by my conjunx Ros.
+
+bluskyintro___________
+Привет, я Дельта/Вако.
+
+Этот аккаунт ведут два человека.|но Дельта — его владелец!|
+
+Я буду рисовать персонажей из *Chiikawa*, *Transformers* и многого другого, что мне лень перечислять.
+Этот аккаунт также строго для лиц от 15 лет.
+
