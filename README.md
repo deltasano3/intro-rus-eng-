@@ -13,8 +13,8 @@ Intro shit
 DNI! (¬`‸´¬); "Age liars !"- 
 very extroverted people{please dont force me to int}.
 
-i do talk little nsfw sometimes but in 18+ servers.overly affectionate
-(most nsfw is on my bluesky mdni!!)
+i do talk little nsfw sometimes but in 18+ servers
+
 
 im usually showering,drawing or doing documents.
 
