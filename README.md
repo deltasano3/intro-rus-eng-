@@ -21,7 +21,7 @@ im usually showering,drawing or doing documents.
 _____interests_______
 transformers or robots in general very crazy abt them 
 
-CATS/plums/dogs.etc my favorite food is medovik||||THATS ALL!
+CATS/chibi/dogs.etc my favorite food is medovik||||THATS ALL!
 
 if your confused on who your talking to vako will be cat d-16(ponytown)
 
