@@ -21,8 +21,15 @@ transformers or robots in general very crazy abt them
 
 CATS/plums/dogs.etc my favorite food is medovik||||THATS ALL!
 
+if your confused on who your talking to vako will be cat d-16(ponytown)
 
-translated by my conjunx Ros.
+delta is energon megatron! do not get them mixed up please.
+
+for safe servers mdni delta is an adult just let them sit wherever they want .
+
+still allowed to c+h i guess.overall both are friendly just be cautious.
+
+translated by my conjunx Ros/vako(my servant)
 
 bluskyintro___________
 Привет, я Дельта/Вако.
