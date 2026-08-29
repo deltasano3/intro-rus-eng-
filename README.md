@@ -2,7 +2,10 @@
 
  
 llı delta  ╱  tfojan   𐂯  15+
+
 ⏔  he/him  .  she/her    ♫
+
 𝟅𝟈    ◾️— if ya need anything from me dears just w2i ^^
+
 more on strawpage..
 ☆
