@@ -1,4 +1,9 @@
-<img width="754" height="434" alt="Screenshot 2026-08-29 at 09 51 31" src="https://github.com/user-attachments/assets/f361ec50-24d7-4ef7-8a0f-6219429eb1d7" />
+   <img width="99" height="56" alt="stamp___tro_loves_milk_by_jinosan_d368z7s" src="https://github.com/user-attachments/assets/5c804d40-a14b-4169-af33-74823d74e62f" />
+
+   c+h/whisper||im either drawing or editing socials..
+   trying to get active on deviant but is deactivated rn.
+
+
 
 
 
